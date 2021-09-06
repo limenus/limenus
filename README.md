@@ -1,5 +1,5 @@
-Hello i am the biggest skid on github. i cannot code. i suck at it. 
-currently "developing" penis client. 
+Hello i am the biggest skid on github. i am a super poop head. 
+no longer developing penis client. 
 i am a 50 year old man and yeah thats it lol. 
 
 <!---
